@@ -1,4 +1,4 @@
-# Sathish Kumar
-s/o Suranna
+P. Sathish Kumar
+S/O P. Suranna
 3-5 MPR Dam Village
-Garladinna Mandal
+Garladinna Mandal, Anantapur DT
